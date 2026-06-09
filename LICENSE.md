@@ -1,4 +1,4 @@
-
+secret bedwars Script offers the most advanced bedwars Script, with god mode and fly. Perfect for dominating any match.
 
 
 
